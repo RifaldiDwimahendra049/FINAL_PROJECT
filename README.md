@@ -3,7 +3,7 @@ Penanggung jawab : Muhammad Rifaldi Dwimahendra (F55120049)
 Nama anggota kelompok :
 
 Rizky Kaligis (F55120036)   
-Moh. Raihan Dirga Putra Lamadjido (F55120045)  
+Moh. Raihan Dirga Putra Lamadjido (F55120040)  
 Bernadeth Putri Meo (F55120047)  
 Muhammad Rifaldi Dwimahendra (F55120049)  
 Ghea Erlita Tahendung (F55120050)  
